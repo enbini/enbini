@@ -1,0 +1,4 @@
+- 👋🏻 Hello, I am a Digital Strategist
+- 🎯 Like Mr. Wolf, I solve problems, but digital
+- 📚 Currently studying Management Engineering
+- 📞 Want to reach me? You should find how...
